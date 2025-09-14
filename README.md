@@ -1,2 +1,2 @@
 # MarianySouza
-Currículo Profissional
+Dev. Júnior em Formação
