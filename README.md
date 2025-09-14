@@ -1,2 +1,2 @@
 # MarianySouza
-Currículo
+Currículo Profissional
